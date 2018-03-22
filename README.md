@@ -23,3 +23,5 @@ Obviamente hay quien prefiere la version denostada de doxoforo, aquel que se val
 Yo estoy aqui para pensar erradamente e intentar construir sobre ello.  Seguro que la suma de dos ideas estúpidas, algun día, genera una idea genial.  Solo necesitamos atrevernos a opinar libremente. Y libremente implica sobre todo, libre de las cadenas de la "verdad". 
 
 Opinemos erradamente, sin miedo.
+
+Artemio Segurana
